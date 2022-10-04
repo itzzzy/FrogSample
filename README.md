@@ -20,6 +20,7 @@ There is also this game I recently discovered about a frog ! It's called Travel 
 ![TravelFrogPic](https://user-images.githubusercontent.com/114508496/193744855-a92829ef-856d-4d5b-81bd-9378c2900874.jpg)
 
 Thank you!!
+
 *:･ﾟ✧The End✧･ﾟ:*
 
-My stomach literally started hurting when I was thinking about this assignment and it only got worse when I was trying to figure out what to do I don't know if it's the anxiety kicking in welp ;-;
+My stomach literally started hurting when I was thinking about this assignment and it only got worse when I was trying to figure out what to do I don't know if it's the anxiety that was kicking in LMAOOO help ;-;
